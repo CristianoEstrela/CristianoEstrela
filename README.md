@@ -1,2 +1,2 @@
 ## Olá meu nome cristiano e aprendo programação com meus cascas de bal
-![descricão do GIF]([https://tenor.com/pt-BR/view/bom-dia-gif-21644953](https://tenor.com/pt-BR/view/bom-dia-bom-dia-bomdia-bom-dia-vida-gif-8567347151383138761))
+![descricão do GIF]([![image](https://github.com/user-attachments/assets/a4aa7448-835b-4ebc-9b8a-c9fa756f1ed6))
