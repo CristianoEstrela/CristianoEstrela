@@ -1,2 +1,2 @@
-## Olá meu nome cristiano e aprendo programação com meus cascas de bal
-![descricão do GIF](https://media1.tenor.com/m/ZARBViZffU4AAAAC/hd-smirk.gif)
+## Olá meu nome cristiano e aprendo programação NO ALURA 🤫🧏‍♂️
+![descricão do GIF](https://media1.tenor.com/m/1i_g_JQloBUAAAAd/roblox.gif)
